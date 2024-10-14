@@ -1,0 +1,7 @@
+![Screenshot_14-10-2024_174023_](https://github.com/user-attachments/assets/456bcb97-d6f0-4888-be14-e01f6a1863d4)
+![Screenshot_14-10-2024_173943_](https://github.com/user-attachments/assets/ad884989-5f31-4b9e-acf5-e39f22330a16)
+![Screenshot_14-10-2024_173929_](https://github.com/user-attachments/assets/344136d9-09a2-45ec-8437-7ff5cd965123)
+![Screenshot_14-10-2024_173912_](https://github.com/user-attachments/assets/c4fd4b98-1163-490a-8b23-469f510c43a9)
+![Screenshot_14-10-2024_173851_](https://github.com/user-attachments/assets/d5f253fc-a9fb-4940-8a74-acab8eceeb62)
+![Screenshot_14-10-2024_17434_](https://github.com/user-attachments/assets/b5158c78-289b-4d2f-9aaf-afd8ace3e9b1)
+![Screenshot_14-10-2024_17419_www instagram com](https://github.com/user-attachments/assets/86421a3f-54c7-4c14-b7b2-978b9f15d617)
